@@ -1,8 +1,6 @@
-- 👋 Hi, I’m @monikate27
+- 👋 Hi, I’m Monica Kate Gimenez
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning how to play volleyball
-- 💞️ I’m looking to collaborate on ma'am jovillano
-- 📫 How to reach me 09632021231
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: If I could live anywhere in the world, it would be Paris
 
